@@ -19,3 +19,5 @@ bvnm,
 gvhbnm
 edrftgyhujk
 esdrtfghjkl
+suhsm
+suchi
